@@ -23,8 +23,9 @@ My budget is $20-$50 per post. I have quality tech/business content.
 
 Can you send me your guest post rates?
 
-WhatsApp: +92-XXX
-Email: nbnoor50@gmail.com
+WhatsApp: +92-03186598832
+Easypaisa: +92-03186598832
+Email:  nbnoor50@gmail.com
 
 Thanks,
 Noor
